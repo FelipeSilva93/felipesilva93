@@ -1,6 +1,3 @@
-### Hi there 👋
-
-
 ## Oi! Eu sou o Felipe.
 
  <div>
